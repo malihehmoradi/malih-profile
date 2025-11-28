@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **m.moradi.ps@gmail.com**
 
-- 📃 You can see **[My Resume](assets/MalihehMoradi_resume_v1.0.1.pdf)**
+- 📃 You can see **[My Resume](assets/MalihehMoradi_resume_20251128.pdf)**
   
 
 <br/>  
